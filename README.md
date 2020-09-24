@@ -41,4 +41,4 @@
 
 ##### See Training 
 
-- 🔞 See Training 🎥  https://youtu.be/YKAoNA29Pws  🎥
+- 🔞 See Training 🎥 https://youtu.be/jHYW1tBFpQo  🎥
