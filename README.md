@@ -33,7 +33,7 @@
 -  Do not extract more than 100 numbers in 24 hours
 
 ##### Sales of training and security software
-- 🛄 Privet tutorials and scripts 🈂️  https://sellix.io/M4nifest0team 🈂️
+- 🛄 Privet tutorials and scripts 🈂️  https://M4nifest0.com 🈂️
 
 ##### Supported Analysis
 ### Key
